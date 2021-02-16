@@ -6,6 +6,7 @@ Recipe Picks:
 
 - January: [Grilled Peach Salad](../recipe/jan/grilled-peach-salad.md)
 
+
 1.
 
 Coarsely chop chocolate and place in a small metal bowl. Simmer water in a pot and place the bowl over the pot so it hangs over the water. Melt the chocolate while stirring.
@@ -45,3 +46,4 @@ Strain through a sieve into a shallow dish. Stir in the liqueur.
 10.
 
 Place dish in the freezer for 4 hours. Rake the coffee mixture every 15-30 minutes with a fork to form small, frozen crystals. To serve, place a scoop of granita on top of each serving pudding. Sprinkle to taste with additional liqueur. Serve immediately.
+
