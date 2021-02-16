@@ -2,6 +2,11 @@
 
 Welcome to _Flavor_, the only place on the planet where your taste buds won't be disappointed!
 
+## Last Month's Favorites
+[Grilled Peach Salad](recipe/jan/grilled-peach-salad.md)
+[Vanilla Panna Cotta](recipe/jan/vanilla-panna-cotta.md)
+[Chocolate Soup](recipe/jan/chocolate-soup.md)
+
 
 
 ## Picks of the Month
