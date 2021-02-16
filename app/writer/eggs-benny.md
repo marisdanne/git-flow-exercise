@@ -11,5 +11,6 @@ Break off or trim the woody ends from the asparagus and discard. Set the spears 
 
 Step 2
 Heat the olive oil in a skillet over medium heat. Stir in the pine nuts, cranberries, and salt. Cook and stir until the pine nuts start to look translucent, 5 to 6 minutes. Add the asparagus spears and cook, adding a little more olive oil if needed, until stalks are bright green and tender, about 5 to 8 minutes. Serve on a platter with the cranberries and nuts spooned over the top of the asparagus.'
-nereali garsigi Iesaku 
+nereali garsigi Iesaku 100%
+
 
